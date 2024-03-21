@@ -1,0 +1,1 @@
+Revolutionary group started by [[Rimbrandt Greenfeld - 'Founder' of the Greenfelds|Rimbrandt Greenfeld]]. They assign small missions to help people of the

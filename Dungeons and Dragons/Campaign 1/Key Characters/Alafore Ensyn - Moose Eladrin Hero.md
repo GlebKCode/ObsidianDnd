@@ -1,0 +1,1 @@
+The first of the Three Heroes. Knight in shining armor archetype, backbone of the group. He is a Paladin/Fighter who trekked alongside the rest of the heroes to defeat [[Ilm - Big Bad Beholder|Ilm]] 

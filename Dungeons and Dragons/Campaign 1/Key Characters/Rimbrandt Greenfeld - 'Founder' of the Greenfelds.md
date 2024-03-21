@@ -1,0 +1,3 @@
+Greenfeld "founded" the grass-roots anti-monarchal group called [[The Greenfelds]]. He never actually attended the first meeting, and instead called a selected group of people into a room together.
+Secretly, he was the 4th and last of the 3 great heroes who ventured to stop [[Ilm - Big Bad Beholder|Ilm]]. Nobody of course knew this, and he decided against going to the conference, hoping it would naturally dissolve. He is a coward at heart and abandoned his party after they were enslaved by aboleths outside of [[Ilm - Big Bad Beholder|Ilm's]] domain, and he did the same with this meeting. 
+He is a Rogue, and lives in isolation, hoping never to be found.    
